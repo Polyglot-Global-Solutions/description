@@ -26,7 +26,7 @@ En PGS, creemos en la mejora constante a través de la **colaboración y la capa
 
 ## 🔗 Conéctate con Nosotros
 
-Para conocer más sobre nuestro equipo y logros, síguenos en **[LinkedIn](#)** y mantente al día con nuestras novedades.
+Para conocer más sobre nuestro equipo y logros, síguenos en **[LinkedIn](https://www.linkedin.com/company/polyglot-global-solutions/)** y mantente al día con nuestras novedades.
 
 ---
 
